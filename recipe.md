@@ -8,3 +8,5 @@ Step 3) Stuff those vegetables one on another inside the sandwitch, below the sl
 Step 4) If you have an oven or a grilling machine, grill/heat the sandwich. 
 
 Step 5)Enjoy!
+
+![](https://previews.123rf.com/images/fergregory/fergregory1105/fergregory110500123/9435697-delicious-and-fresh-ham-sandwich-separated-by-ingredients.jpg)
